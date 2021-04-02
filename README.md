@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [http:http://www.linkedin.com/in/tamil-elakkiya-5371721aa](http:http://www.linkedin.com/in/tamil-elakkiya-5371721aa)
 
-- 📫 How to reach me **tamilelakkiya2001@gmail.com**
+- 📫 How to reach me **elakkiyatamil2001@gmail.com**
 
 - 📄 Know about my experiences [https://github.com/tamil-elakkiya/RESUME](https://github.com/tamil-elakkiya/RESUME)
 
