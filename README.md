@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **ADVANCED TECHNOLOGIES**
 
-- 👨‍💻 All of my projects are available at [https://github.com/tamil-elakkiya/tamil-elakkiya http://www.linkedin.com/in/tamil-elakkiya-5371721aa](https://github.com/tamil-elakkiya/tamil-elakkiya http://www.linkedin.com/in/tamil-elakkiya-5371721aa)
+- 👨‍💻 All of my projects are available at [http://www.linkedin.com/in/tamil-elakkiya-kandhan-5371721aa http://www.linkedin.com/in/tamil-elakkiya-5371721aa](http://www.linkedin.com/in/tamil-elakkiya-kandhan-5371721aa http://www.linkedin.com/in/tamil-elakkiya-5371721aa)
 
 - 📫 How to reach me **tamilelakkiya2001@gmail.com**
 
