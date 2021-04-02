@@ -9,6 +9,8 @@
 
 - 📫 How to reach me **tamilelakkiya2001@gmail.com**
 
+- 📄 Know about my experiences [https://github.com/tamil-elakkiya/RESUME](https://github.com/tamil-elakkiya/RESUME)
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/http://www.linkedin.com/in/tamil-elakkiya-5371721aa" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/linkedin.svg" alt="http://www.linkedin.com/in/tamil-elakkiya-5371721aa" height="30" width="40" /></a>
